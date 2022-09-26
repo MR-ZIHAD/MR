@@ -1,4 +1,4 @@
-# Encoded By : ZIHAD HOSSAIN RAFI
+# DEVELOPED By : ZIHAD HOSSAIN RAFI
 # Relationship : SINGLE
 # LOVE YOU : MR
 
